@@ -2,4 +2,5 @@
 
 Esta serie de libros cuentan la historia de un hacker de los que hay pocos
 
-**Ivan Rodriguez** loslosloslsoslsos
+**Ivan Rodriguez** buu & loslosloslos
+
